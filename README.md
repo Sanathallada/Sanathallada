@@ -42,7 +42,7 @@
 ### 📨 Let's Connect!
 - 💼 [LinkedIn](https://www.linkedin.com/in/your-profile/)
 - 💻 [Portfolio Website](Coming soon...)
-- 📧 thalladasana@gmail.com
+- 📧 sanaharikathallada@gmail.com
 
 ---
 
